@@ -1,2 +1,2 @@
 # Elearning-publik
-Elearning-publik dapat diakses siapa saja 
+Elearning-publik dapat diakses siapa saja , kalian data memakainya secara gratis
